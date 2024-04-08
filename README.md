@@ -1,8 +1,7 @@
 <div align="center">
 <h1><b>EVIL MD WHATSAPP BOT</b></h1><br>
  <div align="center">
-<p align="center">
-        <img src=["(https://telegra.ph/file/f2a5f112d6196ae567ee3.jpg)"] width="200" style="margin-left: auto;margin-right: auto;display: block;">
+<p align="center"><img src=["(https://telegra.ph/file/f2a5f112d6196ae567ee3.jpg)"] width="200" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 <h1 align="center">᳃𖤇⍣⃝ 𝞢𝝯𝞘𝙇 𝙎𝞗𝞜👿༒꧂💀</h1>
 </p>
